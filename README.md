@@ -1,6 +1,6 @@
 # 个人简介
 
-嗨!我是jinghuashang
+嗨👋!我是jinghuashang
   
 **境花之缘** 服务器制作组人员之一 
   
