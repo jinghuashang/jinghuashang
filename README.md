@@ -6,9 +6,9 @@
   
 高中生，努力学习ing
   
-for me:
+📫 for me:
 Email: 3415645010@qq.com
 
-for me:
+💬 for me:
 Website: www.jinghuashang.cn
 
