@@ -12,4 +12,4 @@ Email: 3415645010@qq.com
 💬 for me:
 Website: www.jinghuashang.cn
 
-![GitHub账户信息统计](https://github-stats.ubrong.com/api?username=ubrong&show_icons=true&theme=tokyonight)
+![GitHub账户信息统计](https://github-stats.ubrong.com/api?username=jinghuashang&show_icons=true&theme=tokyonight)
