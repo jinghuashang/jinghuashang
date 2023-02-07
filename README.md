@@ -13,3 +13,5 @@ Email: 3415645010@qq.com
 Website: www.jinghuashang.cn
 
 ![GitHub账户信息统计](https://github-stats.ubrong.com/api?username=jinghuashang&show_icons=true&theme=tokyonight)
+
+![:jinghuashang](https://count.getloli.com/get/@:jinghuashang?theme=asoul)
