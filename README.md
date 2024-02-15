@@ -10,7 +10,7 @@
 Email: 3415645010@qq.com
 
 💬 for me:
-Website: www.jinghuashang.cn
+Website: jinghuashang.cn
 
 ![:jinghuashang](https://count.getloli.com/get/@:jinghuashang?theme=asoul)
 
